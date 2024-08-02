@@ -7,8 +7,8 @@ Te invito a ver mis proyectos realizados😄
 
 ## 📞 Contacto
 
-📧 Sebastiangaleano.dev@gmail.com
+📧 Enviame un correo: Sebastiangaleano.dev@gmail.com
 
-💼 [Visita mi perfil en Linkedin](https://linkedin.com/in/sebadev)
+💼 Visita mi Linkedin [Visita mi perfil en Linkedin](https://linkedin.com/in/sebadev)
 
 🌎 Portfolio web: https://sebastiang.netlify.app/
