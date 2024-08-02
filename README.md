@@ -12,7 +12,7 @@ Sebastiangaleano.dev@gmail.com
 
 
 💼 Visita mi Linkedin: 
-[Visita mi perfil en Linkedin](https://linkedin.com/in/sebadev)
+[Link](https://linkedin.com/in/sebadev)
 
 
 🌎 Portfolio web: 
